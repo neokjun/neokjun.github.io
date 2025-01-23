@@ -1,6 +1,6 @@
 ---
 layout: post
-title: YJ Bubble Lives Master Post
+title: YJ Bubble Live Master Post
 date: 2025-01-23
 categories: ["BAE173", "Yoojun", "Bubble", "Eng Sub"]
 ---
