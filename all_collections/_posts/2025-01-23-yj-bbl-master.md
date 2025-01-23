@@ -19,16 +19,16 @@ categories: ["BAE173", "Yoojun", "Bubble", "Eng Sub"]
 [250121 Yoojun Live](https://docs.google.com/forms/d/e/1FAIpQLSfMz1c-2OPEou1hLmAGiViipG1UhVsFj_gaphgxWvoJzpufsA/viewform?usp=sharing)
 
 ![250121-1](/assets/img/250121-1.png){: width="250" } 
-![250121-2](/assets/img/250121-1.png){: width="250" } 
+![250121-2](/assets/img/250121-2.png){: width="250" } 
 
 [250119 Yoojun Live](https://docs.google.com/forms/d/e/1FAIpQLScROUSbVfxX1_T2NhKYCr9Mzc0EYkCqDL1JMeP8cN7gdoUHvg/viewform?usp=sharing)
 
 ![250119-1](/assets/img/250119-1.png){: width="250" } 
-![250119-2](/assets/img/250119-1.png){: width="250" } 
+![250119-2](/assets/img/250119-2.png){: width="250" } 
 
 [250116 Yoojun Live](https://docs.google.com/forms/d/e/1FAIpQLSexSUJKHHJGRcHX00qe38ElKAnDJRORR0_2ojGqwn_yz0sC1g/viewform?usp=sharing)
 
 ![250116-1](/assets/img/250116-1.jpeg){: width="250" } 
-![250116-2](/assets/img/250116-1.jpeg){: width="250" } 
+![250116-2](/assets/img/250116-2.jpeg){: width="250" } 
 
 If you have a subscription but is unable to access the link through this form, please DM [@neokjun](https://x.com/neokjun) with your proof of subscription.
