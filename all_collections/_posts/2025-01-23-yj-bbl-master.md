@@ -17,7 +17,7 @@ categories: ["BAE173", "Yoojun", "Bubble", "Eng Sub"]
 
 [250119 Yoojun Live](https://docs.google.com/forms/d/e/1FAIpQLScROUSbVfxX1_T2NhKYCr9Mzc0EYkCqDL1JMeP8cN7gdoUHvg/viewform?usp=sharing)
 
-![250119-1](https://imgur.com/Y8dxx0H.png)
+![250119-1](/assets/img/250119-1.png){: width="250" } 
 ![250119-2](https://imgur.com/SHtfh3O.png)
 
 [250116 Yoojun Live](https://docs.google.com/forms/d/e/1FAIpQLSexSUJKHHJGRcHX00qe38ElKAnDJRORR0_2ojGqwn_yz0sC1g/viewform?usp=sharing)
