@@ -16,7 +16,7 @@ categories: ["BAE173", "Yoojun", "Bubble", "Eng Sub"]
 *T/W: Yoojun mentions mental health in this Bubble live.
 
 ![250125-1](/assets/img/250125-1.png){: width="250" } 
-![250125-2](/assets/img/250125-2.gif){: width="250" } 
+![250125-2](/assets/img/250125-2.png){: width="250" } 
 
 [250123 Yoojun Live](https://docs.google.com/forms/d/e/1FAIpQLSdtzur0Ugy_5JRvUxr2qBZJPhgEmjfBXKp6aHRVEEocMSRD6A/viewform?usp=dialog)
 
