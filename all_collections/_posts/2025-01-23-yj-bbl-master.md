@@ -11,7 +11,12 @@ categories: ["BAE173", "Yoojun", "Bubble", "Eng Sub"]
 - 🫧 is part of the members' income, please subscribe if you have the ability to.
 - If you have a subscription but is unable to access the link through the forms, please DM [@neokjun](https://x.com/neokjun) with your proof of subscription.
 
-[250125 Yoojun Live](https://docs.google.com/forms/d/1KZ2LNEITjPUM5jtSDx-FoebGdZVsf-vPHY-elM4l52E/edit)
+[250127 Yoojun Live](https://docs.google.com/forms/d/e/1FAIpQLSde8qcGi33fXq04rYk6D1KDe5Os-oXrgTrst02pcgyIXSuKCg/viewform?usp=dialog)
+
+![250127-1](/assets/img/250127-1.png){: width="250" } 
+![250127-2](/assets/img/250127-2.png){: width="250" } 
+
+[250125 Yoojun Live](https://docs.google.com/forms/d/e/1FAIpQLSeRgYf-wkfWY1sswk91e1Tyq6_rkOTXqh7QWlHBmenGNJkpTA/viewform?usp=dialog)
 
 *T/W: Yoojun mentions mental health in this Bubble live.
 
