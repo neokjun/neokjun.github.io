@@ -11,10 +11,15 @@ categories: ["BAE173", "Yoojun", "Bubble", "Eng Sub"]
 - 🫧 is part of the members' income, please subscribe if you have the ability to.
 - If you have a subscription but is unable to access the link through the forms, please DM [@neokjun](https://x.com/neokjun) with your proof of subscription.
 
+[250323 Yoojun Live](https://docs.google.com/forms/d/e/1FAIpQLSfI8hUsh1dLKxwWfHy_K0wORCm0YC5Q5LAVwn1l7xWqUotfdA/viewform?usp=sharing)
+
+![250323-1](/assets/img/250323-1.png){: width="250" } 
+![250323-2](/assets/img/250323-2.png){: width="250" } 
+
 [250215 Yoojun Live](https://drive.google.com/file/d/1s9mxaGo2TC1kTly12nRfkCaw0nUBJQkJ/view?usp=sharing)
 
-![250205-1](/assets/img/250215-1.png){: width="250" } 
-![250205-2](/assets/img/250215-2.png){: width="250" } 
+![250215-1](/assets/img/250215-1.png){: width="250" } 
+![250215-2](/assets/img/250215-2.png){: width="250" } 
 
 [250205 Yoojun Live](https://docs.google.com/forms/d/e/1FAIpQLSfDMi5xtvZvCMpMFmBhnHXIA_dXAnA70fnzuzzXaj-KykFgDQ/viewform?usp=dialog)
 
