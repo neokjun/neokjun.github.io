@@ -13,8 +13,8 @@ categories: ["BAE173", "Yoojun", "Bubble", "Eng Sub"]
 
 [250325 Yoojun Live](https://docs.google.com/forms/d/e/1FAIpQLSciGF8oZUKRl-dnHMmkrxiuY2nthyVOk9JwdUauaek82rNm7w/viewform?usp=dialog)
 
-![250325-2-1](/assets/img/250323-2-1.png){: width="250" } 
-![250325-2-2](/assets/img/250323-2-2.png){: width="250" } 
+![250325-2-1](/assets/img/250325-2-1.png){: width="250" } 
+![250325-2-2](/assets/img/250325-2-2.png){: width="250" } 
 
 [250323 Yoojun Live](https://docs.google.com/forms/d/e/1FAIpQLSfI8hUsh1dLKxwWfHy_K0wORCm0YC5Q5LAVwn1l7xWqUotfdA/viewform?usp=sharing)
 
