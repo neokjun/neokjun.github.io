@@ -9,9 +9,9 @@ categories: ["BAE173", "Eng Sub"]
 - If you have any questions, please DM [@neokjun](https://x.com/neokjun).
 
 ## 250503 Double 0ne live
-#### BAE173 Account
+- BAE173 Account
 <iframe width="560" height="315" src="https://www.youtube.com/embed/hZPVxKKdioI?si=A1xs8CjL7v0BMMN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-#### FANTASY BOYS Account
+- FANTASY BOYS Account
 <iframe width="560" height="315" src="https://www.youtube.com/embed/-cThqlrfZGI?si=UXKGSJXKupiNG4cI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
 ## 250410 On the way to Tokyo🚄
