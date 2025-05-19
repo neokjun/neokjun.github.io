@@ -1,7 +1,7 @@
 ---
 layout: post
 title: YJ Bubble Live Master Post
-date: 2025-04-05
+date: 2025-05-19
 categories: ["BAE173", "Yoojun", "Bubble", "Eng Sub"]
 ---
 
@@ -10,6 +10,11 @@ categories: ["BAE173", "Yoojun", "Bubble", "Eng Sub"]
 - Please do not redistribute, reupload, or share the link you obtain anywhere else.
 - 🫧 is part of the members' income, please subscribe if you have the ability to.
 - If you have a subscription but is unable to access the link through the forms, please DM [@neokjun](https://x.com/neokjun) with your proof of subscription.
+
+[250519-1 Yoojun Live](https://drive.google.com/file/d/1rnpv2DJcwMb_ZgNVkVYTtkLi9h4JnIxK/view?usp=drive_link)
+
+![250519-1-1](/assets/img/250519-1-1.png){: width="250" } 
+![250519-1-2](/assets/img/250519-1-1.png){: width="250" } 
 
 [250405 Yoojun Live](https://docs.google.com/forms/d/e/1FAIpQLSeuPiXclzJfB_YFUHYaMWt7iMNZJmYV1tHVWc4fI0PXCO8N5Q/viewform?usp=dialog)
 
