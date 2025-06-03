@@ -10,6 +10,7 @@ categories: ["BAE173", "Yoojun", "Bubble", "Eng Sub"]
 - Please do not redistribute, reupload, or share the link you obtain anywhere else.
 - 🫧 is part of the members' income, please subscribe if you have the ability to.
 - If you have a subscription but are unable to access the link through the forms, please DM [@neokjun](https://x.com/neokjun) with your proof of subscription.
+- Translations are done in one sitting with no proofreading. There can be inaccuracies and mistranslations.
 
 [250531 Yoojun Live](https://docs.google.com/forms/d/e/1FAIpQLScy56Bhk7PkpVLI7dKmTX59ihAhbh4rElykCWUdCKSOjXdOSw/viewform?usp=dialog)
 
