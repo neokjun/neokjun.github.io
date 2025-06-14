@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Hikari Let's Play Soccer 4 Master Post
-date: 2025-04-27
+date: 2025-06-08
 categories: ["FANTASY BOYS", "Hikari", "Eng Sub"]
 ---
 
