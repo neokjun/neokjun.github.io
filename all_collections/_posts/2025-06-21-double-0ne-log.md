@@ -1,12 +1,15 @@
 ---
 layout: post
 title: Double 0ne Log
-date: 2025-06-19
+date: 2025-06-21
 categories: ["Double 0ne", "BAE173", "FANTASY BOYS", "Eng Sub"]
 ---
 
 - Please do not redistribute or reupload.
 - If you have any questions, please DM [@neokjun](https://x.com/neokjun).
+
+## 250621 BAE173+FANTASY BOYS=Double 0ne, the chemistry between them is?
+<blockquote class="twitter-tweet"><p lang="en" dir="ltr">[ENG SUB*] 250621 BAE173+FANTASY BOYS=Double 0ne, the chemistry between them is?<br><br>(*Please turn on CC for subtitles.)<br><br>🔗: <a href="https://t.co/rneNXnHi5y">https://t.co/rneNXnHi5y</a><br><br>Master list: <a href="https://t.co/SJsH7tZQko">https://t.co/SJsH7tZQko</a><a href="https://twitter.com/hashtag/Double0ne?src=hash&amp;ref_src=twsrc%5Etfw">#Double0ne</a> <a href="https://twitter.com/hashtag/BAE173?src=hash&amp;ref_src=twsrc%5Etfw">#BAE173</a> <a href="https://twitter.com/hashtag/FANTASYBOYS?src=hash&amp;ref_src=twsrc%5Etfw">#FANTASYBOYS</a> <a href="https://t.co/2EUNDWs27o">pic.twitter.com/2EUNDWs27o</a></p>&mdash; 넉 (@neokjun) <a href="https://twitter.com/neokjun/status/1936365858999390526?ref_src=twsrc%5Etfw">June 21, 2025</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
 
 ## 250619 Hangyul came to cheer Double 0ne on
 <blockquote class="twitter-tweet"><p lang="en" dir="ltr">[ENG SUB] 250619 Hangyul came to cheer Double 0ne on🐶<br><br>🔗: <a href="https://t.co/BQms2bQXRS">https://t.co/BQms2bQXRS</a><br><br>Master list: <a href="https://t.co/SJsH7tZQko">https://t.co/SJsH7tZQko</a><a href="https://twitter.com/hashtag/Double0ne?src=hash&amp;ref_src=twsrc%5Etfw">#Double0ne</a> <a href="https://twitter.com/hashtag/BAE173?src=hash&amp;ref_src=twsrc%5Etfw">#BAE173</a> <a href="https://twitter.com/hashtag/FANTASYBOYS?src=hash&amp;ref_src=twsrc%5Etfw">#FANTASYBOYS</a> <a href="https://twitter.com/hashtag/POLARIX?src=hash&amp;ref_src=twsrc%5Etfw">#POLARIX</a> <a href="https://t.co/I4s21aswLj">pic.twitter.com/I4s21aswLj</a></p>&mdash; 넉 (@neokjun) <a href="https://twitter.com/neokjun/status/1935693723041685888?ref_src=twsrc%5Etfw">June 19, 2025</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
