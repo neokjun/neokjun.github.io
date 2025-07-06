@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Double 0ne Log
-date: 2025-06-29
+date: 2025-07-04
 categories: ["Double 0ne", "BAE173", "FANTASY BOYS", "Eng Sub"]
 ---
 
