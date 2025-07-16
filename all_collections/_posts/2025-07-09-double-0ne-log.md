@@ -8,8 +8,11 @@ categories: ["Double 0ne", "BAE173", "FANTASY BOYS", "Eng Sub"]
 - Please do not redistribute or reupload.
 - If you have any questions, please DM [@neokjun](https://x.com/neokjun).
 
+## 250716 A single word of praise ignited the passionate energy of the Double 0ne waiting room gym ❤️‍🔥
+https://twitter.com/neokjun/status/1945442233962181119
+
 ## 250709 💥Baby I Love You💥 Loud and lively daily life in the Double 0ne waiting room!
-<blockquote class="twitter-tweet"><p lang="en" dir="ltr">[ENG SUB*] 250709 💥Baby I Love You💥 Loud and lively daily life in the Double 0ne waiting room!<br>(*Turn on CC for subs) <br><br>🔗: <a href="https://t.co/h4X0UnGuhl">https://t.co/h4X0UnGuhl</a><br><br>Master list: <a href="https://t.co/SJsH7tZQko">https://t.co/SJsH7tZQko</a><a href="https://twitter.com/hashtag/Double0ne?src=hash&amp;ref_src=twsrc%5Etfw">#Double0ne</a> <a href="https://twitter.com/hashtag/BAE173?src=hash&amp;ref_src=twsrc%5Etfw">#BAE173</a> <a href="https://twitter.com/hashtag/FANTASYBOYS?src=hash&amp;ref_src=twsrc%5Etfw">#FANTASYBOYS</a> <a href="https://t.co/kv4unY22nl">pic.twitter.com/kv4unY22nl</a></p>&mdash; 넉 (@neokjun) <a href="https://twitter.com/neokjun/status/1942909809013240316?ref_src=twsrc%5Etfw">July 9, 2025</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+https://twitter.com/neokjun/status/1942909809013240316
 
 ## 250704 Reverse Fan Service: Behind the Scenes with Royal Food Tasters | Teaser
 <blockquote class="twitter-tweet"><p lang="en" dir="ltr">[ENG SUB*] 250704 Reverse Fan Service: Behind the Scenes with Royal Food Tasters | Teaser<br><br>(*Turn on CC for subs)<br><br>🔗: <a href="https://t.co/ldqU4RdAtW">https://t.co/ldqU4RdAtW</a><br><br>Master list: <a href="https://t.co/SJsH7tZQko">https://t.co/SJsH7tZQko</a><a href="https://twitter.com/hashtag/Double0ne?src=hash&amp;ref_src=twsrc%5Etfw">#Double0ne</a> <a href="https://twitter.com/hashtag/BAE173?src=hash&amp;ref_src=twsrc%5Etfw">#BAE173</a> <a href="https://twitter.com/hashtag/FANTASYBOYS?src=hash&amp;ref_src=twsrc%5Etfw">#FANTASYBOYS</a> <a href="https://t.co/dYOWyEaaBl">pic.twitter.com/dYOWyEaaBl</a></p>&mdash; 넉 (@neokjun) <a href="https://twitter.com/neokjun/status/1941175458894315759?ref_src=twsrc%5Etfw">July 4, 2025</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
