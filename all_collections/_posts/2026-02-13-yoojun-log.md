@@ -1,12 +1,18 @@
 ---
 layout: post
 title: Yoojun Log
-date: 2025-08-20
+date: 2026-02-13
 categories: ["BAE173", "Yoojun", "Eng Sub"]
 ---
 
 - Please do not redistribute or reupload.
 - If you have any questions, please DM [@neokjun](https://x.com/neokjun).
+
+## 2026 BAE173 SPECIAL FAN EVENT 'Yearbook' MAKING FILM
+<blockquote class="twitter-tweet"><p lang="en" dir="ltr">[ENG SUB] 2026 BAE173 SPECIAL FAN EVENT &#39;Yearbook&#39; MAKING FILM<br><br>🔗: <a href="https://t.co/VQrGhwAczi">https://t.co/VQrGhwAczi</a><br><br>Master List: <a href="https://t.co/c6y2mcdflR">https://t.co/c6y2mcdflR</a><br><br> <a href="https://twitter.com/hashtag/BAE173?src=hash&amp;ref_src=twsrc%5Etfw">#BAE173</a> <a href="https://t.co/4hMTkM5dAo">pic.twitter.com/4hMTkM5dAo</a></p>&mdash; 넉 (@neokjun) <a href="https://twitter.com/neokjun/status/2022237613810393301?ref_src=twsrc%5Etfw">February 13, 2026</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+
+## 251022 SHOW CHAMPION Ep. 574! Who's in today's lineup, ready to 'verify' their appearance?❤️ (BAE173 cut)
+<blockquote class="twitter-tweet"><p lang="en" dir="ltr">[ENG SUB] 251022 SHOW CHAMPION Ep. 574! Who&#39;s in today&#39;s lineup, ready to &#39;verify&#39; their appearance?❤️ (BAE173 cut)<br><br>Hangyul 🤝 Muzin<br>The arm wrestling match of the century (?)<a href="https://twitter.com/hashtag/BAE173?src=hash&amp;ref_src=twsrc%5Etfw">#BAE173</a> <a href="https://twitter.com/hashtag/%EB%B9%84%EC%97%90%EC%9D%B4%EC%9D%B4173?src=hash&amp;ref_src=twsrc%5Etfw">#비에이이173</a> <a href="https://t.co/6NQmigOfl3">pic.twitter.com/6NQmigOfl3</a></p>&mdash; 넉 (@neokjun) <a href="https://twitter.com/neokjun/status/1980925021536301453?ref_src=twsrc%5Etfw">October 22, 2025</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
 
 ## 250827 BAE173 OFFICIAL FANCLUB ‘ELSE’ FANKIT BEHIND ⚡️
 <blockquote class="twitter-tweet"><p lang="en" dir="ltr">[ENG SUB] 250827 BAE173 OFFICIAL FANCLUB ‘ELSE’ FANKIT BEHIND ⚡️<br><br>🔗: <a href="https://t.co/Yh16xfYZHo">https://t.co/Yh16xfYZHo</a><br><br>Master list: <a href="https://t.co/c6y2mcdflR">https://t.co/c6y2mcdflR</a><a href="https://twitter.com/hashtag/BAE173?src=hash&amp;ref_src=twsrc%5Etfw">#BAE173</a> <a href="https://t.co/wOLiAReXID">pic.twitter.com/wOLiAReXID</a></p>&mdash; 넉 (@neokjun) <a href="https://twitter.com/neokjun/status/1960709092739310036?ref_src=twsrc%5Etfw">August 27, 2025</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
